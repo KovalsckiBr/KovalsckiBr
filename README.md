@@ -1,7 +1,7 @@
-## Hi there 👋
 
 
-**KovalsckiBr/KovalsckiBr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+
 
 𝐎 𝐌𝐀𝐈𝐒 𝐎𝐃𝐈𝐀𝐃𝐎 𝐃𝐎 𝐏𝐑𝐎𝐅𝐄𝐒𝐒𝐎𝐑 𝐀𝐋𝐄𝐗𝐀𝐍𝐃𝐑𝐄 👺 ☠️
 
